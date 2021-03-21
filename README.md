@@ -9,5 +9,6 @@
 # Sobre Mi
 - Me gusta jugar videojuegos
 - Tengo 2 perros
-- Me gustaria en un futuro trabajar y vivir en otro pais
+- Me gustaria en un futuro trabajar en algo relacionado a la carrera y en algun otro pais que se hable ingles (Canada, Australia, Nueva zelanda).
+- Lo que se de ingles lo aprendi principalmente por jugar videojuegos y por ver videos de YouTube
 - Mi hermano mayor tambien estudia ingenieria en sistemas
